@@ -25,9 +25,9 @@ Stay tuned for the release date and be among the first to experience the power o
 
 if you have any errour text me : t.me/Rioissucdecode
 
-
+link downoald https://selar.com/429yv9
 
 
 
 video link:https://www.youtube.com/watch?v=dwktoVZc3nI&t=7s
-https://selar.com/429yv9
+
